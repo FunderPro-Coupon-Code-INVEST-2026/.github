@@ -10,6 +10,14 @@ INVEST
 
 👉 [Click Here to Get 20% OFF FunderPro](https://funderpro.cxclick.com/visit/?bta=35901&brand=funderpro)
 
+## What is FunderPro?
+
+FunderPro is a leading proprietary trading firm that empowers traders worldwide by providing access to funded trading accounts. Founded with the mission of giving talented traders the capital they need to succeed, FunderPro eliminates the barrier of needing large personal capital to trade the markets professionally.
+
+With FunderPro, traders can prove their skills through a straightforward evaluation process and gain access to a funded account of up to $200,000. The firm supports trading across multiple asset classes including Forex, Crypto, Indices, and Commodities — giving traders the flexibility to trade what they know best.
+
+FunderPro stands out in the prop trading industry with its trader-friendly conditions, transparent rules, fast payouts, and no time limits on challenges. Whether you are a beginner looking to grow or an experienced trader ready to scale, FunderPro provides the platform and capital to take your trading to the next level.
+
 ## Why FunderPro?
 
 - Up to $200,000 in funded capital
@@ -17,6 +25,7 @@ INVEST
 - Fast & reliable payouts
 - No time limits on challenges
 - Supports Forex, Crypto, Indices & Commodities
+- Transparent & trader-friendly rules
 
 ## How to Use the FunderPro Coupon Code
 
